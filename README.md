@@ -1,4 +1,4 @@
 # First-Repository
 #### Hello from [REDACTED] area
 
-![Are you Gay?](https://i.redd.it/sqxpmja3h1j51.jpg)
+![Yes, I am gay. Are you GAY?](https://i.redd.it/sqxpmja3h1j51.jpg)
